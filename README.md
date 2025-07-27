@@ -7,3 +7,6 @@
 <img width="543" height="188" alt="27 07 2025_20 15 04_REC" src="https://github.com/user-attachments/assets/1b695c33-b5f1-4dde-a858-abff66b145a5" />
 <img width="454" height="167" alt="image (14)" src="https://github.com/user-attachments/assets/b3be895b-6f78-4b07-b0b9-801f2171f1df" />
 <img width="443" height="148" alt="image (15)" src="https://github.com/user-attachments/assets/86aa81fc-d7ca-4b7b-bee6-725a8dcbfaae" />
+<img width="788" height="422" alt="27 07 2025_20 40 33_REC" src="https://github.com/user-attachments/assets/9d1e1531-a7aa-4ca3-a0d0-ca096672c888" />
+![tumblr_c2c81eb063e567ae8c9ceef4db31d54e_a2f6b91e_1280](https://github.com/user-attachments/assets/05d75e44-4a71-45f6-b68d-7285e7e27189)
+![tumblr_81726e12a06048e549fcd60272eecc20_bd407bd2_1280](https://github.com/user-attachments/assets/c694bb51-a33b-41d2-b09c-112178acc27d)
