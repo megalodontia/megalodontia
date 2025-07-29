@@ -9,3 +9,4 @@
 <img width="443" height="148" alt="image (15)" src="https://github.com/user-attachments/assets/86aa81fc-d7ca-4b7b-bee6-725a8dcbfaae" />
 <img width="788" height="422" alt="27 07 2025_20 40 33_REC" src="https://github.com/user-attachments/assets/9d1e1531-a7aa-4ca3-a0d0-ca096672c888" />
 <img width="688" height="354" alt="27 07 2025_20 43 18_REC" src="https://github.com/user-attachments/assets/db62ba6c-9f2f-4762-9566-30e13c94295e" />
+<img width="437" height="276" alt="29 07 2025_12 53 38_REC" src="https://github.com/user-attachments/assets/dfa0e869-9bd9-46a9-a156-3a57ce5eb468" />
