@@ -11,9 +11,7 @@
 
 <img width="543" height="188" alt="27 07 2025_20 15 04_REC" src="https://github.com/user-attachments/assets/1b695c33-b5f1-4dde-a858-abff66b145a5" />
 
-<img width="454" height="167" alt="image (14)" src="https://github.com/user-attachments/assets/b3be895b-6f78-4b07-b0b9-801f2171f1df" />
 
-<img width="443" height="148" alt="image (15)" src="https://github.com/user-attachments/assets/86aa81fc-d7ca-4b7b-bee6-725a8dcbfaae" />
 
 <img width="788" height="422" alt="27 07 2025_20 40 33_REC" src="https://github.com/user-attachments/assets/9d1e1531-a7aa-4ca3-a0d0-ca096672c888" />
 
