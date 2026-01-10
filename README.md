@@ -1,3 +1,4 @@
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mjid7fbw5qyoqzga7otilfgdvu&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=31mjid7fbw5qyoqzga7otilfgdvu&redirect=true)
 
 <img width="463" height="475" alt="Screenshot 2024-07-13 221531" src="https://github.com/user-attachments/assets/b798147f-4149-4459-970e-59d31d63ac5a" />
 
